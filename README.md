@@ -1,4 +1,4 @@
-![](./image/911275.jpg)
+![](./image/G7bkYYug9FcPtz3B0H8oNZ9uz9FgHphCrD3_ldh1360.webp)
 <!--
 **Hisoka-X/Hisoka-X** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
